@@ -1,0 +1,2 @@
+# Resume_Tukhtaboy_Jumaniyazov
+Resume_Tukhtaboy_Jumaniyazov
